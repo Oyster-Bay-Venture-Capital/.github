@@ -7,7 +7,7 @@ generation of founders building in **food, beverage, and consumer goods
 technology**. We invest early, we invest with conviction, and we stay close to
 the teams we partner with.
 
-> *No grit, no pearls.*
+> *No grit, no pearls.* 
 
 ---
 
